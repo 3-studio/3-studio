@@ -4,7 +4,7 @@ Three Studio is a leading innovative platform dedicated to providing comprehensi
 
 
 ## Connect with Me:  
-- [LinkedIn](https://www.linkedin.com/in/three-studio.3/)  
+- [LinkedIn](https://www.linkedin.com/company/three-studio3/)
 - [Instagram](https://www.instagram.com/three-studio3/)
 - [Behance](https://www.behance.net/threestudio4?fbclid=IwY2xjawF7F5pleHRuA2FlbQIxMAABHU7LtkSnHtdkUHS_hyfSJrHBB5tL62mMLzDhrkgfzzb7U9SlFdpRem_utw_aem_fX0jY1V6_7lGC_XdPMDryw)  
 - [Website](https://3studio.com)  
